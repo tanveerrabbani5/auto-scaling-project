@@ -2,7 +2,7 @@
 
 ##❯❯❯❯Forward --> Linkdin-Post
 
-**Linkdin-Post:** https://github.com/tanveerrabbani5  
+**Linkdin-Post:** https://lnkd.in/p/gi8nb-cp  
 ---
 
 ## 🏗️ Architecture
